@@ -26,8 +26,6 @@ Brand Hazz Farm dibangun untuk mencerminkan perusahaan agritech yang modern, pro
 
 > **Pertanian Modern untuk Masa Depan yang Lebih Baik**
 
-> *(Tagline bersifat fleksibel dan dapat berkembang sesuai arah perusahaan.)*
-
 ---
 
 ## Brand Statement
